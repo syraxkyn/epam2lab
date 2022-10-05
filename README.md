@@ -1,1 +1,1 @@
-https://lilac-handball-dc1.notion.site/lamoda-by-98dbb2e7dd994fdab66c80942752bca7
+https://lilac-handball-dc1.notion.site/1-lamoda-by-635a05dc8ac64340b775c50e4f4c8f6b
